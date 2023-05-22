@@ -1,4 +1,4 @@
-# [CAT/ARMY-DEX] 
+# [CAT/ARMY-DEX] 🔫🐈🔫🐈‍⬛
 
 Have you ever thought of starting a card collection? With this Dex, you can be the guardian of an impressive collection of virtual cats and even your own virtual army, adding their names, skills or descriptions to make each cat/soldier unique!
 
